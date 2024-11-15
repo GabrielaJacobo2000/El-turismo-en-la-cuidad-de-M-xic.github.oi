@@ -12,4 +12,6 @@ Vibrante vida nocturna: Desde bares de mezcal en Roma y Condesa hasta exclusivos
 Ya sea que busques sumergirte en su fascinante historia, disfrutar de su cocina o vivir su vibrante vida nocturna, la Ciudad de México tiene algo especial para cada visitante.
 
 *¡Prepárate para descubrir la riqueza de una ciudad que nunca deja de sorprender!*
+Consuta la pagina a traves de este link: https://gabrielajacobo2000.github.io/El-turismo-en-la-cuidad-de-M-xic.github.oi/
+
 
